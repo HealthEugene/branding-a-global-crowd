@@ -5,4 +5,4 @@ Would love for this to become a real time and always upto date digital legacy on
 
 #background
 
-There are tremendous changes 
+There are tremendous changes transpiring in our society, driven by insatiable demand for instant communications
