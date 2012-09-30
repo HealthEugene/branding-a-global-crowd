@@ -1,7 +1,7 @@
 branding-a-global-crowd
 =======================
 
-Would love for this to become a real time and always upto date digital legacy on global or local crowd movements such as, Leanstartup machine, StartupWeekend, QuantifiedSelf, #HCSM or local communities such as Appsterdam, that are using global platforms such as meetup.com to create social value. How these movements started, how they grew and engaged dozens, hundreds and sometimes thousands of people across the globe to step up and build local communities with the same goals, while in the process discovering new business models for all involved.
+Would love for this to become a real time and always upto date digital legacy on global or local crowd movements such as, Leanstartup machine, StartupWeekend, QuantifiedSelf, #HCSM or local communities such as Appsterdam, that are using globally branded platforms such as meetup.com to create social value. How these movements started, how they grew and engaged dozens, hundreds and sometimes thousands of people across the globe to step up and build local communities with the same goals, while in the process discovering new business models for all involved and building recognizable brands.
 
 #background
 
